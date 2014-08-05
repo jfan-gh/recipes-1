@@ -1,4 +1,4 @@
-# Pasta & Mushrooms
+# Forest mushrooms & creme sauce with pasta
 
 ## Ingredients
 * Garlic
